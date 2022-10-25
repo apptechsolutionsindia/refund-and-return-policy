@@ -18,7 +18,7 @@ The words of which the initial letter is capitalized have meanings defined under
 
 ### For the purposes of this Return and Refund Policy:
 
-Company (referred to as either "the Company", "We", "Us" or "Our" in this Agreement) refers to App Tech Solutions, Near Cariappa Park, Government College, Pachmarhi, Madhya Pradesh, India, 461881.
+Company (referred to as either App Tech Solutions in this Agreement) refers to App Tech Solutions, Near Cariappa Park, Government College, Pachmarhi, Madhya Pradesh, India, 461881.
 
 ### Goods refer to the items offered for sale on the Service.
 
